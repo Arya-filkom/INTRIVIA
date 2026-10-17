@@ -10,3 +10,7 @@ keren dan berwibawa
 
 ## Kesan Pesan Cluster 20 Sejauh Ini 
 Cluster yang asik
+
+## Harapan Kuliah 
+bisa menjadi mahasiswa yang rajin
+
